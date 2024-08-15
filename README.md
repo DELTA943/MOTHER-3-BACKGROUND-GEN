@@ -1,1 +1,1 @@
-hOI person who is viewing this! This peguinmod project was made entirely by me, and you can make your own turbowarp version if you want! Becaus elike, turbowarp is better than penguinmod but like not? I have no idea XD, feel free to use this, but credit @DeltaWarrioir943 on scratch when used!
+hOI person who is viewing this! This project was made entirely by me, feel free to use this, but credit @DeltaWarrioir943 on scratch when used!
